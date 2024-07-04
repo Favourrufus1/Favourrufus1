@@ -2,7 +2,7 @@
 - 👀 I’m interested in engeneerin,innovation,collaboration,learning
 - 🌱 I’m currently learning cloud computing
 - 💞️ I’m looking to collaborate on on unique
-- 📫 you can rach me via email; favourrufus28@gmail.com
+- 📫 you can reach me via email; favourrufus28@gmail.com
 - 😄 Pronouns: . you can address me as she,her,hers
 - ⚡ Fun fact: im a coffe enthusiastand adventurous traveller
 
